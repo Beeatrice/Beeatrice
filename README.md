@@ -1,5 +1,5 @@
 ### Hi there 👋
-Sintam-se livres para me contatar pelo email m.shynjirobbie@gmail.com! Adoro participar de novos projetos e aprender mais sobre esse vasto campo que todos amamos!
+Sintam-se livres para me contatar pelo Email beatrizsanabria2003@gmail.com! Adoro participar de novos projetos e aprender mais sobre esse vasto campo que todos amamos!
 
 <!--
 **Beeatrice/Beeatrice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
