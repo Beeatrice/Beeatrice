@@ -1,4 +1,4 @@
-# Oee, eu sou a Beatriz Sanabria🌱.
+# Oee, eu sou Beatriz Sanabria🌱.
 
 - Contato: eusoubeaa@gmail.com
 
